@@ -1,0 +1,1 @@
+# daniilyartym-makhnykpp2025-star.github.io
